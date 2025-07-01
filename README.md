@@ -1,6 +1,6 @@
 <div align="center">
 
-## <br>   WELCOME 𝐂𝐑𝐘𝐏𝐓𝐎-𝐗𝐌𝐃 𝚁𝙴𝙿𝙾
+## <br>   WELCOME 👩🏻‍💻🧚🏻ＱＵＥＥＮ ＳＨＡＮＩ🧚🏻👨🏻‍💻 𝚁𝙴𝙿𝙾
 
 
  <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
@@ -12,7 +12,7 @@
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-𝐂𝐑𝐘𝐏𝐓𝐎-𝐗𝐌𝐃 Multidevice Whatsapp Bot Mack By (𝐂𝐑𝐘𝐏𝐓𝐎-𝐗𝐌𝐃).
+👩🏻‍💻🧚🏻ＱＵＥＥＮ ＳＨＡＮＩ🧚🏻👨🏻‍💻 Multidevice Whatsapp Bot Mack By (👩🏻‍💻🧚🏻ＱＵＥＥＮ ＳＨＡＮＩ🧚🏻👨🏻‍💻).
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
